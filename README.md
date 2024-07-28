@@ -4,7 +4,8 @@ I am Jobandeep Singh
 
 ## Activity report Induction Program 2024. 
 I have successfully completed the "excel for beginners: ciyrse offered by Great Learning Academy.
-Certificate link-https://www.linkedin.com/posts/jobandeep-singh-4025172a6_1000-free-courses-with-free-certificates-activity-7222975716567441409-TLVq?utm_source=share&utm_medium=member_desktop
+Certificate link-
+https://www.linkedin.com/posts/jobandeep-singh-4025172a6_1000-free-courses-with-free-certificates-activity-7222975716567441409-TLVq?utm_source=share&utm_medium=member_desktop
 
 
 
